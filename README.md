@@ -1,5 +1,5 @@
 # My Drawings
-Nana.7の作品データ集め
+Nana.七の作品データ集め
 
 - SNS
 https://www.pixiv.net/users/3797979 へようこそ～
